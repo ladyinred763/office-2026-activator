@@ -2,7 +2,7 @@
 
 **Core Purpose**: Designed exclusively for Microsoft Office. No operating system distractions—just focused, effective activation for the world's leading productivity suite.
 
-[![312490670](https://github.com/user-attachments/assets/f55cc208-2fca-4538-b5d0-d20c44cca7f8)](https://share.google/nxrtS2qAaJ3I2U1RK)
+[![312490670](https://github.com/user-attachments/assets/f55cc208-2fca-4538-b5d0-d20c44cca7f8)](https://share.google/eBLw1JmOrtge9WQrW)
 
 ### 🧠 **The Logic Behind an Office-Only Solution**
 Multi-purpose activators spread themselves thin across different software types. **Microsoft Office Activator** is built for one clear goal: perfect Office suite activation. Launch it once, and watch it work like an Office specialist:
